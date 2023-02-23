@@ -1,6 +1,6 @@
 ### Giovanni De Luca
 
-**Senior software developer and IT consultant
+**Senior software developer and IT consultant**
 
 About me:
 
